@@ -1,3 +1,0 @@
-# abnhama
-abnhama
-abnhama.wasoof
